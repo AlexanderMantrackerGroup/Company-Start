@@ -1,8 +1,9 @@
-Alexander Mantracker Group
-Alexander, R0K 0A0 
-AlexanderManTrackGroup@outlook.com
-https://sites.google.com/view/alexandermantrackergroup/home
-2024-05-03
+Alexander Mantracker Group |
+Alexander, R0K 0A0 |
+AlexanderManTrackGroup@outlook.com |
+https://sites.google.com/view/alexandermantrackergroup/home |
+2024-05-03|
+
 Dear Valued Clients and Partners,
 We are pleased to introduce Alexander Mantracker Group, 
 At Alexander Mantracker Group, we believe that All games of Mantracker Should be fun and without cheaters. 
